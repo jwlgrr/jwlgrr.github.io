@@ -1,9 +1,9 @@
 # welcome to jwlgrr.github.io ☆૮꒰•༝ •。꒱ა 
 -------------------------------------------------
-☆ Chelzea Jewel B. Capiral LG 9-Brebeuf 
+Chelzea Jewel B. Capiral ☆  LG 9-Brebeuf 
 
 - 💭 chelzea/chelz  
-- 🎨 08 (2/10/08) 
+- 🎨 08  
 - 📚 enfj-t 
 - 🪐 aquarius 
 
