@@ -1,4 +1,4 @@
-# jwlgrr.github.io
+# welcome to jwlgrr.github.io
 Chelzea Jewel B. Capiral
 
 LG 9-Brebeuf 
