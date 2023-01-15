@@ -8,7 +8,7 @@ Chelzea Jewel B. Capiral ☆  LG 9-Brebeuf
 - 📚 enfj-t 
 - 🪐 aquarius 
 
-[facebook](https://www.facebook.com/chelzea.jewel.5) [instagram](https://www.instagram.com/_chelzeacapiral) [twitter](https://www.twitter.com/_chelzeacapiral) 
+[facebook](https://www.facebook.com/chelzea.jewel.5) [instagram](https://www.instagram.com/_chelzeacapiral) [twitter](https://www.twitter.com/_chelzeacapiral) [spotify] (https://www.spotify.com/chelziedy)
 
 | ૮₍ ᵔᴗᵔ ₎ა likes!! | ૮₍ ˃̵ࡇ˂̵ ₎ა dislikes!! |
 | ----------- | ----------- |
