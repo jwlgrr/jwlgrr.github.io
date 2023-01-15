@@ -4,6 +4,7 @@ Chelzea Jewel B. Capiral LG 9-Brebeuf
 
 
 ;; 08 she/her enfj-t aquarius ;;
-[facebook](https://www.facebook.com/chelzea.jewel.5)
+
+[facebook](https://www.facebook.com/chelzea.jewel.5) [instagram](instagram.com/_chelzeacapiral) [twitter](twitter.com/_chelzeacapiral) 
 
 ![image](https://user-images.githubusercontent.com/122419116/212211603-2a7f03ac-f7b7-431b-b7ea-861a5b653c52.png)
