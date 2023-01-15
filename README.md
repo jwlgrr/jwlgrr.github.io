@@ -10,7 +10,7 @@ Chelzea Jewel B. Capiral ☆  LG 9-Brebeuf
 
 [facebook](https://www.facebook.com/chelzea.jewel.5) [instagram](https://www.instagram.com/_chelzeacapiral) [twitter](https://www.twitter.com/_chelzeacapiral) [spotify](https://www.spotify.com/chelziedy)
 
-[SZA]([https://www.example.com](https://open.spotify.com/track/4iZ4pt7kvcaH6Yo8UoZ4s2?si=b2bb8f0a2af54daa)
+[SZA](https://open.spotify.com/track/4iZ4pt7kvcaH6Yo8UoZ4s2?si=b2bb8f0a2af54daa)
 
 
 | ૮₍ ᵔᴗᵔ ₎ა likes!! | ૮₍ ˃̵ࡇ˂̵ ₎ა dislikes!! |
