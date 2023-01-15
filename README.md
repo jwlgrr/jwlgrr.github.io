@@ -1,9 +1,11 @@
 # welcome to jwlgrr.github.io ☆૮꒰•༝ •。꒱ა 
 -------------------------------------------------
-Chelzea Jewel B. Capiral LG 9-Brebeuf 
+☆ Chelzea Jewel B. Capiral LG 9-Brebeuf 
 
-
-;; 08 she/her enfj-t aquarius ;;
+- 💭 chelzea/chelz  
+- 🎨 08 (2/10/08) 
+- 📚 enfj-t 
+- 🪐 aquarius 
 
 [facebook](https://www.facebook.com/chelzea.jewel.5) [instagram](https://www.instagram.com/_chelzeacapiral) [twitter](https://www.twitter.com/_chelzeacapiral) 
 
